@@ -3,7 +3,7 @@
   </p>
 <div align="center">vince or nick! he/him only (no they/them)</div>
 <div align="center">17 y/o autistic ☆ queerian transman >w< </div>
-<div align="center">please read my rentry byi pls thxxx !!! :3 </div>
-<div align="center">᧔ https://rentry.co/crucifixedd ᧓ </div>
+<div align="center">sign my guestbook pretty please !!!!! :3 </div>
+<div align="center">᧔ https://hearts4hifumin.atabook.org/ ᧓ </div>
   
   
