@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/1083954945935544370/1249063846417535098/Untitled17_20240608121318.png?ex=6665f0db&is=66649f5b&hm=1484745fd76ff7b2b3507fd99507863e99fc4dd414e3aaac3734ce4d02c75638&" />
+<img src="https://cdn.discordapp.com/attachments/1083954945935544370/1256790966044594257/IMG_7167.jpg?ex=66820d4c&is=6680bbcc&hm=5e27e67a15eb404328be9009dce4becd78916aa00cadea4bc63038f45a357877&" />
   </p>
 <div align="center">vince or nick! he/him only (no they/them)</div>
 <div align="center">17 y/o autistic ☆ queerian transman >w< </div>
