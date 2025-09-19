@@ -5,6 +5,6 @@
 <div align="center"> sign my guestbook pretty please!!</div>
 <div align="center">᧔ https://hearts4lecter.atabook.org/ ᧓ </div>
         
-<p align="center">   <img src="https://i.postimg.cc/YS0yg9yK/tumblr-8c2407efc1592e2690713602301caeeb-b5022add-100-2.png" /> <img src="https://i.postimg.cc/CMkrb9J1/tumblr-8c2407efc1592e2690713602301caeeb-b5022add-100-3.png" />
+<p align="center">   <img src="https://i.postimg.cc/gkPh6TBG/tumblr-8c2407efc1592e2690713602301caeeb-b5022add-100-5.png" /> <img src="https://i.postimg.cc/CMkrb9J1/tumblr-8c2407efc1592e2690713602301caeeb-b5022add-100-3.png" />
    </p>
   
