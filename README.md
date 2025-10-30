@@ -1,10 +1,8 @@
-<p align="center">
-<img src="https://i.postimg.cc/T20DvSSH/tumblr-8c2407efc1592e2690713602301caeeb-b5022add-100-1.png" /> <img src="https://i.postimg.cc/zGj9K4zW/tumblr-8c2407efc1592e2690713602301caeeb-b5022add-100-4.png" />
-  </p>
-<div align="center"> JSCHLATT 4 PRESIDENT 2025 !!!!!</div>
-<div align="center"> sign my guestbook pretty please!!</div>
+<div align="center"> sex & candy central. he/his nothingburger</div>
+<div align="center"> big ted nivison fan & the only marcy playground liker ever </div>
+<div align="center"> basic dni js don't be fucking weird man </div>
+<div align="center"> sign my atabook please!! i will reply probably ^_^ </div>
 <div align="center">  https://hearts4lecter.atabook.org/  </div>
-        
-<p align="center">   <img src="https://i.postimg.cc/gkPh6TBG/tumblr-8c2407efc1592e2690713602301caeeb-b5022add-100-5.png" /> <img src="https://i.postimg.cc/CMkrb9J1/tumblr-8c2407efc1592e2690713602301caeeb-b5022add-100-3.png" />
-   </p>
-  <div align="center"> <img src="https://i.postimg.cc/0N9vvthc/blinkies-Cafe-h-G.gif" /> </div>
+                      
+<p align="center">
+<img src="https://i.postimg.cc/htxRnq43/ted-nivison-eating-1.gif" />
