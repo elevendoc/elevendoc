@@ -1,8 +1,9 @@
-<div align="center"> sex & candy central. he/his nothingburger</div>
-<div align="center"> big ted nivison fan & the only marcy playground liker ever </div>
-<div align="center"> basic dni js don't be fucking weird man </div>
-<div align="center"> sign my atabook please!! i will reply probably ^_^ </div>
-<div align="center"> https://bombshelled.atabook.org/  </div>
+<div align="center"> ` michelle, ma belle, sont des mots qui vont très bien ensemble ` ♪</div>
+‎ 
+<div align="center"> 🐟   nothingburger aspiring to be an everything bagel </div>
+<div align="center"> basic dni criteria i block as i damn well please
+<div align="center"> read my strawpage & sign my atabook if u'd like 2!! </div>
+<div align="center"> ┈> https://bombshelled.atabook.org/ 🦊 </div>
                       
 <p align="center">
 <img src="https://i.postimg.cc/htxRnq43/ted-nivison-eating-1.gif" />
