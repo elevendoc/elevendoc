@@ -10,7 +10,7 @@
  <div align="center"> ┈> https://pitwoey.straw.page/ ♡ </div>
 ‎ 
 
- <div align="center">‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ <img src="https://64.media.tumblr.com/74b760205dbf621175e22f88aaa5d7a5/8548780ba34f81c4-ef/s100x200/c1f472627f2416dbe9702f74ca6583f095cad06a.pnj" /> <img src="https://64.media.tumblr.com/d8e0b77250c05a2a062b12e5ce6b5e7d/278cf0c3c4e6064d-07/s250x400/965ee34a8146344960264835bb9923dc932212cb.pnj" /> <img src="https://64.media.tumblr.com/767d883bd24c5a1d5baf1b0020a6b6c9/24850f8b6fb5a30a-2a/s100x200/229533e936254edb9e8accf7519066337235db08.gifv"/> <img src="https://64.media.tumblr.com/3e278226ca9f6fb984dac2ae7fe8d320/f943c255bc176c80-10/s100x200/2fbd1e38af8b23ccc7226408a987f17f00dc0750.pnj" />
+ <div align="center">‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ <img src="https://64.media.tumblr.com/74b760205dbf621175e22f88aaa5d7a5/8548780ba34f81c4-ef/s100x200/c1f472627f2416dbe9702f74ca6583f095cad06a.pnj" /> <img src="https://64.media.tumblr.com/d8e0b77250c05a2a062b12e5ce6b5e7d/278cf0c3c4e6064d-07/s250x400/965ee34a8146344960264835bb9923dc932212cb.pnj" /> <img src="https://64.media.tumblr.com/767d883bd24c5a1d5baf1b0020a6b6c9/24850f8b6fb5a30a-2a/s100x200/229533e936254edb9e8accf7519066337235db08.gifv"/> <img src="https://64.media.tumblr.com/4849eb00d98f63ace91d67d3688eb602/72f68783cdc5f990-1c/s100x200/f79d6e0c25c752539192264a7c4bbf70378c3255.jpg" />
                       
 <p align="center">
 
